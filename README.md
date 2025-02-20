@@ -1,3 +1,25 @@
+## <a href="https://shorten.is/nanotv">CANLI MAÇ İZLEMEK İÇİN TIKLA</a>
+
+## <a href="https://t.me/betnanotv">TIKLA TELEGRAMA KATIL MAÇ LİNKLERİNDEN HABERDAR OL</a>
+
+<a href="https://shorten.is/nano"><img src="https://s7.gifyu.com/images/SX5dx.gif"></a>
+
+| %100 Hoşgeldin Spor Bonusu | %100 + 50 Freespin Slot Hoşgeldin Bonusu |
+|----------|----------|
+| [![Taraftarium24 1](https://i.ibb.co/w6Ms0n3/0-spor-hosgeldin.jpg)](https://shorten.is/nano) | [![Taraftarium24 2](https://i.ibb.co/SmhNkkF/ho-geldin-slot.jpg)](https://shorten.is/nano) |
+
+| Günlük 1 Milyon TL Çekim İmkanı | %15 Çevrimsiz Spor Bonusu |
+|----------|----------|
+| [![Taraftarium24 3](https://i.ibb.co/1sqbDKg/gates.jpg)](https://shorten.is/nano) | [![Taraftarium24 4](https://i.ibb.co/Smxn3qW/gates-of-bn.jpg)](https://shorten.is/nano) |
+
+| Yüksek Kazanç Oranı | Hızlı Çekim İmkanı |
+|----------|----------|
+| [![Taraftarium24 5](https://i.ibb.co/jwxwCmC/sweet.jpg)](https://shorten.is/nano) | [![Taraftarium24 6](https://i.ibb.co/SKbx3w4/Masalar-Canli-Casino-Mobil-Pop-Up.jpg)](https://shorten.is/nano) |
+
+<a href="https://shorten.is/nano"><img src="https://s13.gifyu.com/images/SXln5.gif"></a>
+
+
+
 # Taraftarium24 ⚽ Canlı Maç Keyfini Zirvede Yaşayın!
 
 **Futbol tutkunları için kesintisiz ve HD kalitede canlı maç deneyimi!** Taraftarium24, dünyanın dört bir yanındaki futbolseverlere anlık skorlar, canlı yayınlar ve en güncel maç istatistikleri sunar. Artık hiçbir maçı kaçırmayacaksınız!
